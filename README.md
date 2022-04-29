@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Trevacs
+- 👀 I’m interested in learning new things.
+- 🌱 I’m currently learning programing languages and moviemaking.
+- 💞️ I’m looking to collaborate on projects that want to relieve the mc community.
+- 📫 You can reach me via Trevacs#8708.
